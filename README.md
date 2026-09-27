@@ -1,0 +1,2 @@
+# premium-living-wall-001-living-wall-system-pocket-pl
+Tired of your living wall plans drying up before they even sprout? The 'Living Wall System &amp; Pocket Plant Craft Lab' Notion template turns your green dream into a thriving reality—no more scattered notes or forgotten watering schedules.  This template replaces the chaos of sticky notes, spreadsheets, and half-baked plans with a single, beautifully
